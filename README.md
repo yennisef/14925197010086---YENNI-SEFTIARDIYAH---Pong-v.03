@@ -1,1 +1,3 @@
-# 14925197010086---YENNI-SEFTIARDIYAH---Pong-v.03
+# 191080200251 
+# Project UAS Grafika Komputer
+# Pengenalan Jenis Carabiner (Carabiner Kidney)
